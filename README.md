@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=QRIS+ALL+PAYMENT+RAMZ+STORE+REALL)
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=QRIS+ALL+PAYMENT+RAMZ+STORE+REALL)
 
 ![1000052982](https://github.com/user-attachments/assets/22c8e388-0d8b-4c71-b56d-130458c1d5cb)
 
