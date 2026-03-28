@@ -16,3 +16,5 @@
     DAN PASTIKAN NAMA QRIS SESUAI DENGAN FILE GAMBAR YANG ADA DI ATAS.
     [RAMZ SRORE REALL]
 ===> GESER👉
+
+        ![1000052982](https://github.com/user-attachments/assets/22c8e388-0d8b-4c71-b56d-130458c1d5cb)
