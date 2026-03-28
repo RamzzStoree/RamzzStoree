@@ -16,4 +16,4 @@
 </p>
 </div>
 
-[×] SURYAA
+</p> SURYAA
