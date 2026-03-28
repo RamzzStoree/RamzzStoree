@@ -16,4 +16,4 @@
 </p>
 </div>
 
-》Scan Qris Untuk Transfer, Jika Sudah Lalu (ScreenShot Bukti Tranfer.) Kirim Bukti Transfer Ke Admin, Lalu Admin Kan Mengamankan Saldo/Uang Anda.
+       ⚠️ WARNING ⚠️
